@@ -63,3 +63,7 @@ Contact details
 
 ## OUTPUT:
 
+![Image](https://github.com/user-attachments/assets/55b1be8f-5edc-4277-926e-474ef9c7a923)
+![Image](https://github.com/user-attachments/assets/e00a2f4f-762f-42c3-aca8-5c4f089e4334)
+![Image](https://github.com/user-attachments/assets/4debad52-dbad-4160-9473-ee9572bca5f5)
+
